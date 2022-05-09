@@ -1,2 +1,0 @@
-# tapping-legands-X-OP-SCRIPT-
-OP SCRIPT TAPPING LENGS X
